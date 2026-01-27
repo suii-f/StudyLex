@@ -4,15 +4,15 @@ https://github.com/user-attachments/assets/d5cc3dd1-b1a5-4574-96d0-11eadf282acf
 
 
 
-https://github.com/user-attachments/assets/14371046-55f2-4b9e-a230-c5054c267522
 
 
 
-https://github.com/user-attachments/assets/e764953e-8692-46c9-809f-931c0b84af6f
 
 
 
-https://github.com/user-attachments/assets/39cbbbb1-ff4b-4181-b9ee-83294d5a2e50
+
+
+
 
 
   # StudyLex — твой карманный репетитор английского
